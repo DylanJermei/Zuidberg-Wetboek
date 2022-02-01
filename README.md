@@ -1,1 +1,1 @@
-# Zuidberg-Wetboek
+# Zuidberg Wetboek
